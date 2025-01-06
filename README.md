@@ -1,4 +1,4 @@
-# 84-Integrities
+# 84-Integrities of Teleportation
 
 Stephen Paulson
 
@@ -104,8 +104,9 @@ Verification of tested minerals in denominative compounds actuates bases in shuf
 Visual correlations of the color spectrum are the transit bridge to coordinate memory and distance.
 
 34. Synonyms:
-Do not heed what I do, for I do not heed you.
+Do not heed what I do, for I do not heed you.  Source Law.
 A witty firewall protects from unintentional initiated sequences.
+110/60
 
 35. Fortification:
 Every body propels a forcefield, not like the spear, but of a gravitational perspective.  Mercury in retrograde.
