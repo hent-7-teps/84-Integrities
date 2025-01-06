@@ -104,7 +104,7 @@ Verification of tested minerals in denominative compounds actuates bases in shuf
 Visual correlations of the color spectrum are the transit bridge to coordinate memory and distance.
 
 34. Synonyms:
-Do not heed what I do, for I do not heed you.  Source Law.
+Do not heed what I do, for I do not heed you.   Source Law.
 A witty firewall protects from unintentional initiated sequences.
 110/60
 
